@@ -7,3 +7,7 @@ Saiba mais em [naosei.com]
 Gostou do curso? Quer mais? Ajude com um café =)
 
 New line yes 
+
+Idk just changed
+
+Changed again baby 
